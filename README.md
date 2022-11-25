@@ -1,4 +1,5 @@
 
+* [洗礼歌](https://www.asuswebstorage.com/navigate/a/#/s/A12A58CC74964DCC81DE4FAF30B954CFY)
 
 * [第一道光](https://www.asuswebstorage.com/navigate/a/#/s/9C29AB438BC44CD39C2803BA1CFE6502Y)
 
